@@ -1,4 +1,4 @@
-#👋 Olá, me chamo Isabella!
+# 👋 Olá, me chamo Isabella!
 - 👀 Meu interesse é crescer nas áreas administrativas e digitais
 - 🌱 Atualmente estou apredendo um novo idioma (Inglês)
 - 📫 Como me encontrar: 00001120263001sp@al.educacaosp.gov.br
